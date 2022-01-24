@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Pritam-Samui
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning skills
-- 💞️ I’m looking to collaborate on getting a job
+- 💞️ How to reach me Linkdin:-https://www.linkedin.com/in/pritam-samui/
 - 📫 How to reach me FaceBook:-https://www.facebook.com/pritam.pal.5477272
 
 <!---
